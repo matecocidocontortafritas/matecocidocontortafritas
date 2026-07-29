@@ -1,2 +1,2 @@
 - 👋 Hola, soy @matecocidocontortafritas
-- 📫 https://mate.growthlab.com.ar
+- 📫 https://matecocido.growthlab.com.ar
